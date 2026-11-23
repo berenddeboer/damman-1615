@@ -1,0 +1,41 @@
+Nu om te comen tot den Catechismum/ daer wordt [onzeker: also] gheantwoordt op de eerste vraghe. {[onzeker: 14]}
+
+> Dat de Heere Christus my alsoo bewaert, dat sonder den wille [onzeker: mijns] Hemelschen Vaders, gheen hayr van mijnen hoofde vallen en can, [onzeker: Ia] oock dat my alle dinck tot mijnen salicheydt dienen moet, daerom hy my oock door sijnen H. Geest, des eeuwighen levens versekert, ende hem voortaen te leven van herten willich ende bereyt maeckt.
+
+Wat can duydelijcker ghesproken worden / teghens [onzeker: Bertij] voorghevinghe? [onzeker: Evenwel en] heeft Bertius dit niet ghesien oft niet willen sien.
+
+Op de 28. Vraghe. {2}
+
+> Wy weten voorseecker dat ons gheen Creature van Godes liefde scheyden sal, aenghesien dat alle creaturen alsoo in sijnder handt zijn, datse teghen sijnen wille sich noch roeren, noch beweghen connen.
+
+### Tegenworpinge Bertij.
+
+> Dit is alleen te verstaen van [onzeker: uytwendighe] dinghen: want so het {[onzeker: Pa. 79. l. 24.]} [onzeker: vande] sonde mede te verstaen waer / soo [onzeker: moestede] sonde een [onzeker: creatuer sijn]: ’twelck waer Godt een oorsaeck des quaedts maecken met den [onzeker: Marcioniten] ende Manicheen. {[onzeker: pa. 79. l. 13.]}
+
+### Antwoorde.
+
+De Catechismus verstaet/ door de Creatueren / alle uytwendighe dinghen, ende onder andere oock den Duyvel/ als blijckt by de aenwijsinghe die op den cant staen. Want daer wordt gheallegueert Job 1.12. De Heere sprack tot Satan, siet alles wat hy heeft dat sy in uwer handt, &c. ende capit. 2.6. De Heere sprack tot Satan, siet daer, hy zy in uwer handt, &c. Nu ist immers seecker / dat de Satan door eenighe uytwendighe dinghen / als daer zijn / rijckdom / armoede/ vervolginghen ende dierghelijcke/ ons niet eyghentlijck en can / noch en soeckt van Godes liefde te scheyden / maer hy soeckt ons door soedanighe dinghen tot sonde te brenghen/ ende door de sonde van [onzeker: God] te scheyden: Wat gheldt het seydt [onzeker: Satan tot Gode] / hy sal u int aenghesichte zeghenen, dat is / vloecken? {Job 1.11. en cap. 2.5.} Ende de sonde alleen ist / die ons scheydet ende scheyden can van Godt / ghelijck Godt leert/ {Esa. 59.2.} [onzeker: ende Bertius] mede bekent: {pag. 79. l. 23} niet dat alle sonden ons van God onsen Heere scheyden [onzeker: metter daedt], (t’welck Bertius oock uytdruckelijck leert) {pag 16. l. 10.} maer alle sonden verdienen door hare leelijckheyt/ dat God ons [onzeker: terechtte] sijn liefde [onzeker: ontrecken] mochte. Doch hier van sal noch [onzeker: wijnders ter gheleghener tijt] ghesproken worden. Dit blijft dan vast/ dat den Catechismus leert/dat de Duyvel de gheloovighe niet en can van Godes liefde scheyden.
+
+Op de 53. vraghe. {[onzeker: 3.]}
+
+> Ick gheloove dat de heylighe Gheest my ghegheven is, dat hy my door een oprecht gheloove Christi, ende aller sijner weldaden deelachtich maecke, my trooste ende by my in der eeuwicheydt blijve.
+
+### Teghenwerpinghe Bertij.
+
+> In dese vrage wort [onzeker: voorghe stelt] het eynde der gaven Godes/ ende waer toe den H. Gheest den gheloovighen ghegheven wort. Maer daer wort [onzeker: gevraecht/ oft wy van ’t selfde] eynde door [onzeker: ongheloovicheyt] niet en connen afwijcken? {pa. 120. l. 18.}
+
+### Antwoorde.
+
+1. De antwoorde Bertij en can gheensins dienen tot sijnen voordeel/ ende over sulcx is [onzeker: sy] impertinent. Wy bekennen met Bertio/ dat in dese [onzeker: dinghe] wordt voor ghestelt het eynde der gaven [onzeker: Godes]/ ende waer toe den H. [onzeker: Gheest] den gheloovighen ghegheven wort: namentlijck daer toe / om haer lieden Christi / ende aller sijner weldaden deelachtich te maecken/ haer te troosten/ ende by haer/ niet eenen tijt lanck, maer in der eeuwicheydt te blijven, ende alsoo oock om haer ter [onzeker: salicheydt] te brenghen; dewijle het seecker is/ dat de salicheydt [onzeker: niet de gheringhste weldaedt] en is / die de Heer Christus ons door sijn lijden verdient / ende vercreghen heeft. 2. Maer de vraghe Bertij [onzeker: is] noch veel ongherijmder: want hy hadde [onzeker: behoort ghebracht] te hebben / of den H. Gheest sijn ampt soude [onzeker: achter weghe] laten/ ende [onzeker: versuymen] / oft verhindert worden te doen in den gheloovighen t’ghene daerom hy haer ghegheven is? Want in de [onzeker: voor-herhaelde] woorden des Catechismi en wort gheen vermaen ghedaen van ons ampt / maer alleen van’t ampt des H. Gheestes: ende wordt gheleert dat wy ghelooven moeten/dat den gheloovighen den H. [onzeker: Geest] niet alleen ghegheven en is/ om te maecken datse conden ghelooven/ ende datse Christi ende aller sijner weldaeden conden deelachtich worden: (want dan mochtmen segghen/ datse oock conden niet ghelooven / ende Christi [onzeker: Weldaeden] niet deelachtich worden:) maer dat hy haer ghegheven is / om te maken datse metter daedt ghelooven/ ende metter daedt Christi [onzeker: Weldaeden]/ dat is de verghevinghe der sonden/ ende des eeuwighen levens deelachtich werden. Dit dan zijnde de intentie ende het ooghenmerck [onzeker: Godes waerom] hy sijnen H. Gheest ghevet/so en can niemant hem hinderen/dat hy tot sijn ooghenmerck niet en come.
+
+Op de 54. Vraghe. {[onzeker: 4.]}
+
+> Ick gheloove dat ick der heyligher alghemeyne Christelijcke Kercke, een levendich lidtmaet ben ende eeuwich sal blijven.
+
+### [onzeker: Tegenvvorpinghe] Bertij.
+
+> Dese woorden en moeten niet anders verstaen worden / dan van het ampt [onzeker: eens] gheloovighen mensches: want daer wordt gheleert/ wat hy ghehouden is te beloven ende te doen: maer de vraghe is/ oft hy die het gheloove heeft/het selve niet [onzeker: verliesen en kan]? ende/ oft hy die dit heeft belovet/niet en [onzeker: con] afwijcken/ende sijn belofte onvolbracht laten? {[onzeker: pag. 5. l 3.]} {[onzeker: pa. 120. l 24.]}
+
+### Antvvoorde.
+
+Voorwaer dat is wel een groote stoutheydt / ende onbeschaemtheyt: leest ende herleest de voor-verhaelde 54. vraghe/ met haer antwoorde / ende siet oft ghy daer een woordeken oft letterken vinden sult dat van beloven spreeckt: Van gheloove [onzeker: wortter] ghesproocken/ niet van beloven: ende daer wordt gheleert dat een yder gheloovighe/ [onzeker: moet voorsekerlick gelooven], niet beloven, dat hy een lidtmaet der Kercken is: dat is dat hy onder de uytvercorene [onzeker: gherekent]/ende eeuwichlijck daer onder sal blijven. Can nu een gheloovighe sijn gheloove [onzeker: verlaten] ende afwijcken so can ’t geschieden dat hy oock gheen levendich lidtmaet der Kercken en blijve; en oversulcx dat sijn geloove valsch [onzeker: werdt]: want die ghelooft heeft dat hy eeuwichlijck een lidtmaet der Kercken blijven sal voorwaer die heeft valschelijck ghelooft/ indien hy gheen lidtmaet altijdts en [onzeker: Was]; Maer den Catechismus en leert niemandt ghelooven dat valsch is / ofte valsch worden can; hy en leert oock niet voorseecker ghelooven ’tghene onsecker is; [onzeker: So] moet noodtsakelijck dit volghen/dat een gheloovighe (ten minsten na de leere onses Catechismi) sijn gheloove niet en can [onzeker: versaecken]/ noch immermeer afwijcken sonder weder te keeren. Ende Bertius mach hem selven eens bedencken/oft sijn conscientie met sulcke [onzeker: treecken] als hy hier ghebruyckt/ al ghenoech ghepaeyt zy; dat hy sonder roodt te worden [onzeker: dervt] segghen/ hy en leere niets dat met den Catechismo strydet. Ick hebbe wel voor lang gheweten/datmen de Catechismum heeft ghesocht aen te nemen ofte te doen aennemen alleen soo veel de woorden aengaet/latende eenen yederen deselfde woorden verstaen ende uytlegghen/soo ’t hem ter eeren Godes/ende de ghemeyne stichtinghe docht best te zijn. Maer ick en heb niemant noch ghesien [onzeker: oft] ghehoort/die daerenboven hem noch aen-nam/ d’een woort voor d’ander te stellen/ voor ghelooven, beloven, ende dan wederom voor beloven, ghelooven: Soo dat Bertius alle sijne Consoorten in verkeertheyt verre overtreft: daer van hy trouwens cleyne eere heeft; ende [onzeker: niemanden] grootelijcker [onzeker: quetst] / ende schadet/ als hem selven. Is dat de [onzeker: vryheyt] daer Bertius so veel van [onzeker: seyt]/ende die hy so grootelijcx achtet/so can een yeder die wat verder siet als sijnen neus lang is/wel lichtelijck mercken/datter onder dese nieuwe reformatie van de reformatie vry geen cleyne mysteria oft verborgentheden en schuylen. Latet u gheseyt zijn.
