@@ -10,6 +10,8 @@ The Dutch retains historical spelling, transcription doubts and unreadable passa
 
 ## Read the book
 
+[Read the complete English translation in Google Docs](https://docs.google.com/document/d/1flreiSO8jWSqz5Ee1kTJKRDy0bQFk8LafNiLT_HkZhI/view) (view-only).
+
 | Section | English | Dutch |
 |---|---|---|
 | Title page | [Read](english/front-matter/00-title.md) | [Read](dutch/front-matter/00-title.md) |
